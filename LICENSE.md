@@ -1,4 +1,4 @@
-
+Get the ultimate Canva for macOS plugin with Canva for macOS custom Plugin: auto-enhance & custom-filters. Featuring auto-enhance and custom-filters, it's the best choice for
 
 
 
